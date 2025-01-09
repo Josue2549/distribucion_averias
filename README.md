@@ -1,1 +1,0 @@
-# distribucion_averias
